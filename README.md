@@ -13,3 +13,7 @@ Graduate Student or At Least Junior
 
 Distribution:
 Computer Engineering Program Electrical Engineering Program Information and Data Engineering Program
+
+For any questions, please contact via email id or let's connect on LinkedIn :
+URL:  https://www.linkedin.com/in/komalwavhal/
+Email: wavhalkomal7@gmail.com
